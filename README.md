@@ -1,3 +1,0 @@
-# Wahtzy.github.io
-
-Test
